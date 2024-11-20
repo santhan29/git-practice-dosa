@@ -2,13 +2,13 @@
 
 * dosa batter
 * little bit sunflower oil  
-* karam 
+* karam :
 * added extra oil
 
 
 # SPECIAL DOSA BY RAHEEM
 * dosa batter
 * podi
-* karam
-* oil 
+* karam 
 * bombai chutney 
+* oil
