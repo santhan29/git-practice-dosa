@@ -5,8 +5,10 @@
 * karam 
 * added extra oil
 
-# SPECIAL DOSA -RAHEEM
-* Dosa batter
+
+# SPECIAL DOSA BY RAHEEM
+* dosa batter
 * podi
 * karam
-* oil
+* oil 
+* bombai chutney 
